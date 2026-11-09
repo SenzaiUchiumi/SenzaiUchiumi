@@ -8,7 +8,7 @@
 <img src="https://file.garden/avG23iL1MjgLks6o/DEADONE.png" width=290 height=300 align="left"/>
 <h4 align="center"><img src="https://biscuit.crd.co/assets/images/gallery85/dff7c5be.jpg?v=61632bd6](https://i.pinimg.com/736x/d3/66/65/d366656ab0af1f8892758e47d7bd60e9.jpg" width= 500 height=2/><br> <br> $\color{#5cd6d6}{⏖}$  $\color{#84ab99}{\textsf{Anchor Isamu or Gri}}$ $\color{#5cd6d6}{﹒﹒✦}$ <br> 
 $\color{#5cd6d6}{➥}$ $\color{#84ab99}{\textsf{Int freely!}}$ $\color{#5cd6d6}{.}$ $\color{#84ab99}{\textsf{below 13 dni}}$             $\color{#00a838}{♡}$ $\color{#5cd6d6}{˘ᴗ˘}$ <br>
-$\color{#84ab99}{\textsf{Tken by mi gf!}}$ ⋮ $\color{#84ab99}{\textsf{ships iwc}}$ <br> <br><img src="https://biscuit.crd.co/assets/images/gallery85/dff7c5be.jpg?v=61632bd6](https://i.pinimg.com/736x/d3/66/65/d366656ab0af1f8892758e47d7bd60e9.jpg" width= 500 height=2/><br> <br> 
+$\color{#84ab99}{\textsf{Tken by mi gf!}}$ ⋮ $\color{#84ab99}{\textsf{sx/so 9(w1)63}}$ <br> <br><img src="https://biscuit.crd.co/assets/images/gallery85/dff7c5be.jpg?v=61632bd6](https://i.pinimg.com/736x/d3/66/65/d366656ab0af1f8892758e47d7bd60e9.jpg" width= 500 height=2/><br> <br> 
   $\color{#5cd6d6}{⟡}$　 $\color{#6b9396}{\textsf{I am mostly offtab bcus of school works}}$ <br> $\color{#6b9396}{\textsf{but feel free to sit w/ me!}}$ $\color{#5cd6d6}{⸝⸝}$<br> 
  $\color{#5cd6d6}{﹒  ﹒}$  $\color{#6b9396}{\textsf{I tend to reply quick or slow depending on what I'm doing!}}$ <br> $\color{#6b9396}{\textsf{But mostly I reply really quickly!}}$ <br>  
  $\color{#6b9396}{\textsf{Pls read my}}$ $\color{#e6124b}{\textsf{strawpage}}$ $\color{#6b9396}{\textsf{(will rmk soon) for more information and sign my}}$ $\color{#f0b373}{\textsf{ata}}$ $\color{#6b9396}{\textsf{!}}$<br>
